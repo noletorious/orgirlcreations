@@ -1,2 +1,3 @@
-# orgirlcreative
-PNW Lifestyle
+# Oregon Girl Creative
+
+PNW Lifestyle 🌲🖤

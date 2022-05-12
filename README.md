@@ -1,3 +1,3 @@
-# Oregon Girl Creative
+# Oregon Girl Creations
 
 PNW Lifestyle 🌲🖤
